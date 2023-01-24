@@ -1,0 +1,2 @@
+# betemaujkardi
+yoyo bantai rapper
