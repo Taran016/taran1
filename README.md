@@ -1,2 +1,1 @@
-# betemaujkardi
-yoyo bantai rapper
+taran
